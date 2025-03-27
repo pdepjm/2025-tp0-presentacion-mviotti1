@@ -5,4 +5,4 @@
 - Legajo: 220.900-7.
 
 ---
-![FOTO](https://github.com/user-attachments/assets/5001389a-c83c-431c-ac3b-acb66f741359)
+![FOTO MIA](https://github.com/user-attachments/assets/5001389a-c83c-431c-ac3b-acb66f741359)
